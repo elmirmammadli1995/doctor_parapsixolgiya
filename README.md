@@ -1,1 +1,1 @@
-# doctor_parapsixolgiya
+# doctor_parapsixoloq
